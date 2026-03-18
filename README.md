@@ -111,7 +111,7 @@
 
 ## Tác giả
 
-[Thay thế bằng thông tin của bạn]
+[NHÓM 8]
 
 ## License
 
